@@ -8,6 +8,6 @@
 
 [What Is Python Used For? A Beginner’s Guide](https://www.coursera.org/articles/what-is-python-used-for-a-beginners-guide-to-using-python)
 
-![Christmas 2021](Christmas 2021.JPG)
+![Christmas 2021](https://github.com/Jwhit91657/Homework/assets/146009318/207ef285-561e-4804-87ea-9e04d35d236a)
 
 ### This picture was taken on Christmas, 2021. It's my brother, sister, her son, and my golden retriever Luke.
