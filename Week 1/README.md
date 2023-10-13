@@ -10,4 +10,4 @@
 
 ![Alt text](<Christmas 2021.JPG>)
 
-### This picture was taken on Christmas, 2021. It's my brother, sister, her son, and my golden retriever Luke. 
+### This picture was taken on Christmas, 2021. It's my brother, sister, her son, and my golden retriever Luke.
